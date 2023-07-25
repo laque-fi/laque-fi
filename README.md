@@ -1,1 +1,1 @@
-- i have crippling sun allergy
+- i have crippling me/cfs
